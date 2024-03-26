@@ -1,1 +1,0 @@
-# teddyxsavcheva.github.io
